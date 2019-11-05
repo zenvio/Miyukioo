@@ -9,3 +9,5 @@
 # [- - + low iq brainless](https://puu.sh/EAX7o/1b0105d897.osk)
 ![](https://i.imgur.com/q2XaSXb.jpg)
 
+# [-+- def+a+lot](https://puu.sh/EAXmf/3eeeeda3da.osk)
+![](https://i.imgur.com/LuOWMXe.jpg)
