@@ -1,7 +1,7 @@
 # Miyukioo (Sognare) Skins \ (•◡•) /
 
-# [-   + casually mixing skins]()
-![]()
+# [-   + casually mixing skins](https://puu.sh/EDrpE/9b60af1b1a.osk)
+![](https://i.imgur.com/9eMjgGn.png)
 
 # [-+#+Cabei+de+faze+V3 (- Best's Skin)](https://puu.sh/EAXf2/340643c0ef.osk)
 ![](https://i.imgur.com/LS18cvd.jpg)
