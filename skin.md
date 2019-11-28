@@ -1,4 +1,4 @@
-# Miyukioo (Sognare) Skins what I use or mix \ (•◡•) /
+# Miyukioo (Sognare) Skins what I use and mix \ (•◡•) /
 
 # [-+-- non aspect](https://puu.sh/EJtXX/94d10cc28e.osk)
 ![](https://i.imgur.com/6ENrayU.jpg)
