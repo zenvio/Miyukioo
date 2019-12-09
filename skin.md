@@ -1,4 +1,4 @@
-# Miyukioo (Sognare) Skins what I use or mix \ (•◡•) /
+# \ (•◡•) /
 
 # [- spring x tko skin (by - Dark - & weak)](https://skins.osuck.net/index.php?newsid=1154)
 ![](https://skins.osuck.net/uploads/posts/2019-12/1575814223_3.jpg)
