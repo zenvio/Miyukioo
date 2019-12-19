@@ -1,5 +1,8 @@
 # \ (•◡•) /
 
+# [-             defalot tko edit](https://puu.sh/EQWiT/ba7d8e49b6.osk)
+![](https://i.imgur.com/arLwlqY.jpg)
+
 # [-+-- non aspect](https://puu.sh/EQWgK/c6bf2287fb.osk)
 ![](https://i.imgur.com/DZqufrq.jpg)
 
