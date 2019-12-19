@@ -1,5 +1,8 @@
 # \ (•◡•) /
 
+# [-+-- non aspect](https://puu.sh/EQWgK/c6bf2287fb.osk)
+![](https://i.imgur.com/DZqufrq.jpg)
+
 # [- spring x tko skin (by - Dark - & weak)](https://skins.osuck.net/index.php?newsid=1154)
 ![](https://skins.osuck.net/uploads/posts/2019-12/1575814223_3.jpg)
 
